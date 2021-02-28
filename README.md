@@ -1,0 +1,1 @@
+Red velvet cake is a type of cake and expensive. It is especially purchased during Christmas 
